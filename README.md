@@ -1,5 +1,5 @@
 - 👋 Hi, I’m @Shehnaj1
-- 👀 I’m interested in .get a job .
+- 👀 I’m interested in .get a internship.
 - 🌱 I’m currently learning ..web development.
 - 💞️ I’m looking to collaborate on ...
 - 📫 How to reach me .. contact at 7404327741.
